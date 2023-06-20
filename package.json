@@ -1,0 +1,15 @@
+{
+    "name": "the-self-realization-solution-techniques-for-discovering-your-true-self-and-achieving-personal-growth",
+    "version": "1.0.0",
+    "description": "",
+    "main": "index.js",
+    "scripts": {
+        "test": "echo \"Error: no test specified\" && exit 1"
+    },
+    "keywords": [],
+    "author": "",
+    "license": "ISC",
+    "devDependencies": {
+        "honkit": "^4.0.7"
+    }
+}
