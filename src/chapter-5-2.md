@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Discovering Your True Self: Journaling Exercises
-==========================================================================
+# Journaling Exercises
 
 In this chapter, we'll explore journaling exercises as a technique for discovering your true self.
 

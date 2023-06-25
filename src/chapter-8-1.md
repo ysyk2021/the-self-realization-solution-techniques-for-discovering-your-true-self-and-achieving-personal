@@ -1,5 +1,4 @@
-Chapter 8: Navigating Life Transitions: Coping with Change
-==========================================================
+# Coping with Change
 
 In this chapter, we'll explore strategies for coping with life transitions and navigating change.
 

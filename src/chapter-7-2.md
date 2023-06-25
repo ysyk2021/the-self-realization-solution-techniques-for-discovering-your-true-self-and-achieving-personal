@@ -1,5 +1,4 @@
-Chapter 7: Enhancing Personal Relationships: Strategies for Building Positive Relationships
-===========================================================================================
+# Strategies for Building Positive Relationships
 
 In this chapter, we'll explore strategies for building positive personal relationships that can enhance our personal growth and self-realization.
 

@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Discovering Your True Self: Mindfulness Practices
-===========================================================================
+# Mindfulness Practices
 
 In this chapter, we'll explore mindfulness practices as a technique for discovering your true self.
 

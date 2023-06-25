@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Discovering Your True Self: Contemplative Practices
-=============================================================================
+# Contemplative Practices
 
 In this chapter, we'll explore contemplative practices as a technique for discovering your true self.
 

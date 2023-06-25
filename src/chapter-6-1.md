@@ -1,5 +1,4 @@
-Chapter 6: Developing a Personal Growth Plan: Identifying Personal Growth Goals
-===============================================================================
+# Identifying Personal Growth Goals
 
 In this chapter, we'll explore the importance of identifying personal growth goals and developing a plan to achieve them.
 

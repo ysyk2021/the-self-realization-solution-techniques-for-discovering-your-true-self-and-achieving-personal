@@ -1,5 +1,4 @@
-Chapter 2: Understanding the Self: Layers of the Self
-=====================================================
+# Layers of the Self
 
 In this chapter, we'll explore the layers of the self and how understanding these layers can help individuals achieve greater personal growth and discover their true selves.
 
