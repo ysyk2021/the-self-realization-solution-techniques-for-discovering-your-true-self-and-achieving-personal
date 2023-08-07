@@ -1,4 +1,4 @@
-Chapter 5: Contemplative Practices
+Contemplative Practices
 ==================================
 
 In this chapter, we will explore the transformative power of contemplative practices and their role in discovering your true self and achieving personal growth. Contemplative practices encompass a wide range of techniques that allow individuals to focus their attention inward, cultivate mindfulness, and gain deeper insights into their thoughts, emotions, and overall experience of life.

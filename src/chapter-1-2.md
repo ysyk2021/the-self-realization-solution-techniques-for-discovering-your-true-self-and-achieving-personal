@@ -1,4 +1,4 @@
-Chapter: Importance of Self-Realization for Personal Growth
+Importance of Self-Realization for Personal Growth
 ===========================================================
 
 Introduction

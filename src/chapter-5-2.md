@@ -1,4 +1,4 @@
-Chapter 5: Journaling Exercises
+Journaling Exercises
 ===============================
 
 In this chapter, we will explore the power of journaling as a tool for self-reflection, self-discovery, and personal growth. Journaling is an effective technique that allows individuals to express their thoughts, emotions, and experiences in a safe and private space. Through various journaling exercises, you can gain a deeper understanding of yourself and uncover insights that can propel your personal growth journey.

@@ -1,4 +1,4 @@
-Chapter 1: Defining the Self
+Defining the Self
 ============================
 
 In this chapter, we will delve into the concept of the self and explore its meaning in the context of personal growth and self-realization. Understanding the essence of the self is crucial as it lays the foundation for embarking on a journey towards discovering our true selves.

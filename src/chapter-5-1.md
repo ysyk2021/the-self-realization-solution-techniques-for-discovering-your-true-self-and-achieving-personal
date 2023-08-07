@@ -1,4 +1,4 @@
-Chapter 5: Mindfulness Practices
+Mindfulness Practices
 ================================
 
 In this chapter, we explore the concept of mindfulness and its various practices that can help you discover your true self and achieve personal growth. Mindfulness is the practice of being fully present and aware of the present moment without judgment. It allows you to observe your thoughts, emotions, and sensations with acceptance and without getting caught up in them. By cultivating mindfulness, you can develop a deeper understanding of yourself and enhance your overall well-being.

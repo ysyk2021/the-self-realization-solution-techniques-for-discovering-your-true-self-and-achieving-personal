@@ -1,4 +1,4 @@
-Chapter: Strategies for Overcoming Barriers
+Strategies for Overcoming Barriers
 ===========================================
 
 Introduction

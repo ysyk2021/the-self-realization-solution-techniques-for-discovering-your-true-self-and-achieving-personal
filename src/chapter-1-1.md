@@ -1,4 +1,4 @@
-Chapter 1: Definition of Self-Realization
+Definition of Self-Realization
 =========================================
 
 Introduction
