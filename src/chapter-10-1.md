@@ -1,4 +1,3 @@
-# Recap of Key Points
 
 In this book, we have explored various techniques and strategies for discovering our true selves and achieving personal growth. Here's a recap of the key points:
 

@@ -1,5 +1,3 @@
-Chapter 3: Removing Barriers to Self-Realization
-================================================
 
 In this chapter, we'll explore common barriers to self-realization and strategies for overcoming them.
 

@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Self
-=================================
 
 In this chapter, we'll explore the concept of understanding the self and techniques for achieving greater self-awareness.
 

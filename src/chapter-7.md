@@ -1,5 +1,3 @@
-Chapter 7: Enhancing Personal Relationships
-===========================================
 
 In this chapter, we'll explore the role of personal relationships in self-realization and strategies for building positive relationships.
 

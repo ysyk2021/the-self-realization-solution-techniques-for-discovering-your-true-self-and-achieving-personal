@@ -1,5 +1,3 @@
-Chapter 6: Developing a Personal Growth Plan
-============================================
 
 In this chapter, we'll explore the concept of developing a personal growth plan and strategies for achieving personal growth goals.
 

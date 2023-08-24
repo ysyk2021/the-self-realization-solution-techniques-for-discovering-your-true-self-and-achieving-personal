@@ -1,5 +1,3 @@
-Chapter 4: Cultivating Self-Awareness
-=====================================
 
 In this chapter, we'll explore the concept of self-awareness and techniques for developing it.
 
