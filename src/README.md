@@ -6,3 +6,7 @@ With practical exercises that promote mindfulness, meditation, and positive thin
 Whether you're looking to achieve inner peace and fulfillment or striving towards professional success, this book offers transformative tools that can help you achieve your goals. Written by a seasoned expert in the field of personal growth and development, The Self-Realization Solution is a must-read for anyone seeking to discover their true self and achieve personal growth.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
