@@ -1,5 +1,4 @@
-Chapter: Coping with Change
-===========================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we explore the various techniques and strategies for coping with change as part of the self-realization journey. We delve into the importance of embracing change, offer guidance on navigating transitions, and provide tools for personal growth amidst evolving circumstances.
 
